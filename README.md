@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... Whatever I can get my hands on😭
 - 💞️ I’m looking to collaborate on ... MERN Stack Projects, AI/ML Projects, Embedded Systems
 - 📫 How to reach me ... email: pranaavbv2002@gmail.com ;
-- 😄 Pronouns: ... he/him
+- 😄 Pronouns: ... I am him. 😎
 - ⚡ Fun fact: ... Heat exapands materials. So therefore, I am not fat, I am just hot 🔥.
 
 <!---
